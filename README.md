@@ -1,1 +1,1 @@
-# https-msbte-result-winter-2025.netlify.app-
+# https-msbte-result-winter-2025.netlify.app
